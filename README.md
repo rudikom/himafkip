@@ -1,0 +1,2 @@
+# himafkip
+kegiatan himpunan mahasiswa
